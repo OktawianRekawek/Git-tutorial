@@ -1,1 +1,1 @@
-# Git-tutorial
+# Paragon ze sklepu
